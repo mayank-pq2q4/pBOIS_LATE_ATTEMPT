@@ -1,5 +1,5 @@
 # pBOIS_LATE_ATTEMPT
-Like all dark elves, Pranav has white hair, but his lavender eyes—which gleam with feral light before he wades into battle—set him apart from most drow.
+Like all dark elves, Pranav has black hair, but his beaming eyes—which gleam with feral light before he wades into battle—set him apart from most drow.
 
 Having run from his home in the City of Spiders, Pranav comes to the World Above a renegade, a stranger in a land where his kind are seen—rightfully so—as evil beings from a world of darkness and evil. Though he lived for some time in a cave on the slopes of Kelvin’s Cairn, he eventually found a home with his friends in the dwarven city of Mithral Hall—and for the longest time, was sure he was the only drow living on the surface.
 
